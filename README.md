@@ -417,7 +417,7 @@ SECCIÓN 4–5 Fuentes de potencia
 
 4. VIDEO
 
-https://drive.google.com/file/d/14IsotdOFx5F8oRPUxHz2deRn6MmhZqFH/view?usp=sharing
+https://uespe-my.sharepoint.com/:v:/g/personal/dxguallpa_espe_edu_ec/EQN7Oh_PCX1ElK3Zb7dwvvABawKvFjPmEmx28_rOXdc9wg?e=XM6eNc
 
 5. CONCLUSIONES
 
